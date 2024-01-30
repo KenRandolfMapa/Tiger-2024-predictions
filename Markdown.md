@@ -10,9 +10,9 @@
 
   - _**Lucky colour:**_ black; 
 
-  - _**Lucky element:**_ diamond
+  - _**Lucky element:**_ Pearl
 
-  
+
 
 Tigers have a great year for wealth ahead. Their lucky stars will help them gain a promotion and pay rise, and open up new markets for entrepreneurs.
 
